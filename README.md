@@ -1,2 +1,2 @@
 # README.md
-![Puss in Boots](https://link-do-teu-gif.gif)
+![puss in boots](https://github.com/user-attachments/assets/7141ac14-e504-4254-adad-c8bce1811ab6)
